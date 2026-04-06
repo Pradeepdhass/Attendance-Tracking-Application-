@@ -1,1 +1,1 @@
-# Attendance-Tracking-Application
+See The Release to download the APK..
